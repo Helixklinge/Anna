@@ -1,0 +1,1 @@
+Sheriff of PLACEHOLDER PLACE, who recovered Anna and also later didn't really listen to her warnings about Zeke (not the only one).
