@@ -4,6 +4,7 @@ Soon the both of them would find an odd Relic that they'd keep their hands on to
 
 This would lead to unforeseen consequences for the both of them, resulting in Klara losing her life to outlaws and [Anna](Anna%20Krämer.md) losing her left eye, but more importantly: Klara.
 
+
 Looks:
 -Tiefling (dark red)
 -180cm 
