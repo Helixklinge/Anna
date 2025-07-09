@@ -14,6 +14,7 @@ With [Klara's](Klara%20Krämer%20(formerly%20Schmitt).md) death however, she bec
 The last of her smiles died with [Samuel](Samuel%20Mullins.md) and she has become very bitter, cynical and centered on her goals. The memory of her loved ones usually only causes pain, because she does not know how to deal with these losses.
 
 
+
 Looks: 
 -Human
 -170cm
