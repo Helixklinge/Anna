@@ -26,4 +26,5 @@ Looks:
 -usually wears white shirts specifically tailored to fit her left arm
 -left arm has safety tourniquet mechanism as protection against curse (or whatever it really is)
 -wears light grey pants and brown boots
+born on 20th of November 1815
 ![[annapng.png]]
