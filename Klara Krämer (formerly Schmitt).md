@@ -11,5 +11,6 @@ Looks:
 -white hair often in long ponytail
 -brown eyes
 -quite muscular
+-birthdate: 12th of August 1814
 
 25 years old at time of death.
